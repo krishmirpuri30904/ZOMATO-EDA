@@ -107,4 +107,3 @@ Online delivery expansion can be a major growth driver outside India
 This analysis highlights that Zomato's ecosystem is heavily concentrated in India, with moderate customer satisfaction levels and significant potential for growth in engagement, service quality, and international markets.
 
 
-Your analysis is good for a student level —
